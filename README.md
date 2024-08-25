@@ -9,9 +9,9 @@ muhammadHaris319
 
 💬 Ask me about ReactJS, JS, SCSS
 
-📫 How to reach me zohaibsoomro0101@gmail.com
+📫 How to reach me mhgkarachi@gmail.com
 
-📄 Know about my experiences https://muhammadzuhaib-git-master-muhammadzohaib28.vercel.app/
+📄 Know about my experiences 
 
 ⚡ Fun fact I think I am funny. :(
 
